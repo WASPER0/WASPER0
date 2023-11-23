@@ -1,0 +1,3 @@
+- Hi, I’m @WASPER0
+- I’m interested in coding and making games and mods.
+- I make 3D models for 3D printing or mods.
