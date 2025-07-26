@@ -1,4 +1,1 @@
-- Hi, I’m @GE0
-- I’m interested in coding and making games and mods, mostly code.
-- I make 3D models for 3D printing or mods (Im not great at it)
-- Hopefully I'll become a Code Master.
+Alright ramblers, lets get ramblin' ( ▀ ͜͞ʖ▀)
